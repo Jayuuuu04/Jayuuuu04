@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Computer Vision, NLP**
 
-- 📫 How to reach me **hetvitank0@mail.com**
+- 📫 How to reach me **jaydeepkadiya005@gmail.com**
 
 - ⚡ Fun fact **where finding a semicolon is sometimes harder than fixing the bug.🤓**
 
